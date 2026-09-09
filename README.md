@@ -1,4 +1,6 @@
 # 💫 About Me:
+Hi there! My name is Chavez! I am a Roman Catholic Independent Writer and Social Media Content Creator originally from Hong Kong, currently based in Walsingham, Norfolk, United Kingdom.
+
 My contents and my personal research interests are focusing with a particular interest in the history of the sacred liturgy, the historic traditions of the Roman Catholic Church, and contemporary Roman Catholic affairs.
 
 I’m also a volunteer for EWTN Great Britain since June 2026, I have gained valuable experience in videography, writing, editing, and interviewing while covering a variety of Catholic events across the UK.
