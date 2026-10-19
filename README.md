@@ -3,7 +3,7 @@ Hi there! My name is Chavez! I am a Roman Catholic Independent Writer and Social
 
 My contents and my personal research interests are focusing with a particular interest in the history of the sacred liturgy, the historic traditions of the Roman Catholic Church, and contemporary Roman Catholic affairs.
 
-I’m also a volunteer for EWTN Great Britain since June 2026, I have gained valuable experience in videography, writing, editing, and interviewing while covering a variety of Catholic events across the UK.
+I’m also a Production Assistant for EWTN Great Britain since June 2026, I have gained valuable experience in videography, writing, editing, and interviewing while covering a variety of Catholic events across the UK.
 
 Alongside my work in media and content creation, I have more than ten years of ceremonial and liturgical experiences, having served as an Acolyte, Sacristan and Liturgical Master of Ceremonies at Holy Mass and other sacred liturgical celebrations in various parishes and ecclesiastical communities throughout Hong Kong, Macau and the United Kingdom.
 
