@@ -15,11 +15,5 @@ Hi there! My name is Chavez! I am a Roman Catholic Independent Writer and Social
 ### ✍️ Random Dev Quote
 ![](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=tokyonight)
 
-### 🔝 Top Contributed Repo
-![](https://github-contributor-stats.vercel.app/api?username=poonlonghei&limit=5&theme=default_repocard&combine_all_yearly_contributions=true)
-
----
-[![](https://komarev.com/ghpvc/?username=poonlonghei&icon=0&color=0)](https://visitcount.itsvg.in)
-
-  ## 💰 You can help me by Donating
-  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/cyrillusmariae) 
+## 💰 You can help me by Donating
+[![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/cyrillusmariae) 
